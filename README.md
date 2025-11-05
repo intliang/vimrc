@@ -1,2 +1,2 @@
-Valar Morghulis, Valar Dohaeris
-by intliang
+Valar Morghulis, Valar Dohaeris.
+ by intliang
